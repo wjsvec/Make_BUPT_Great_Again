@@ -1,1 +1,2 @@
-# Make_BUPT_great_again-
+# Make BUPT great again !
+# Keep BUPT great !
